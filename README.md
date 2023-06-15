@@ -1,5 +1,5 @@
 # 💫 About Me:
-📕Actualmente estudiante de Henry<br>🎨Apasionado por el FrontEnd💻<br>⭐Buscando oportunidades
+📕Actualmente aprendiendo todos los dias <br>🎨Apasionado por el FrontEnd💻<br>⭐Buscando oportunidades
 
 
 ## 🌐 Socials:
